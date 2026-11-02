@@ -30,7 +30,7 @@ Minha experiência anterior em Design inclui identidade visual, embalagens, mate
 
 ## 🔗 Onde me encontrar
 
-- **Behance:** [tatianecaires](https://www.behance.net/tatianecaires)
+- **LinkedIn:** [linkedin.com/in/tatianecaires](https://www.linkedin.com/in/tatianecaires/)
 
 ---
 
